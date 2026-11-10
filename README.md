@@ -1,1 +1,1 @@
-# Jennelyn-L.-Jorillo:MyActivity
+# JennelynLJorillo:MyActivity
